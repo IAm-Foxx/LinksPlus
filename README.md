@@ -1,2 +1,0 @@
-# LinksPlus
-## Coming Soon!
